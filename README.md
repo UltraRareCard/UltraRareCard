@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @UltraRareCard
+- 👀 I’m interested in becoming UltraPro JS && Python coder
+- 🌱 I’m currently learning JS && JS
+- 📫 My tg-diary **https://t.me/UltraRare_Card**
